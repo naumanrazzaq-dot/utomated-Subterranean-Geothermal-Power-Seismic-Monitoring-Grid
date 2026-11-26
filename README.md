@@ -1,0 +1,1 @@
+# utomated-Subterranean-Geothermal-Power-Seismic-Monitoring-Grid
